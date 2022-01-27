@@ -5,7 +5,7 @@
 - 👯 I’m looking to collaborate with other content creators
 -  Optimist & Product Person 
 -  Building things and learning how things work
-- 🥅 2020 Goals: Contribute more to Open Source projects
+- 🥅 2022 Goals: Contribute more to Open Source projects,Travel
 - ⚡ Fun fact: I love to play basketball,travel,football
 
 ### Connect with me:
