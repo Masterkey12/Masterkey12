@@ -5,7 +5,7 @@
 - 👯 I’m looking to collaborate with other content creators
 -  Optimist & Product Person 
 -  Building things and learning how things work
-- 🥅 2022 Goals: Contribute more to Open Source projects,Travel
+- 🥅 2023 Goals: Contribute more to Open Source projects,Travel, Do Money
 - ⚡ Fun fact: I love to play basketball,travel,football
 
 ### Connect with me:
@@ -22,7 +22,7 @@
 
 [twitter]: https://twitter.com/JimmyKalubi
 [facebook]:https://www.facebook.com/jimmy.kalubi
-[instagram]: https://www.instagram.com/jimmy_kalubi/
+[instagram]: https://www.instagram.com/jim_kalubi/
 [linkedin]: https://www.linkedin.com/in/jimmy-kalubi-7a5b86164/r
 [webdevplaylist]: https://www.youtube.com/playlist?list=PLkwxH9e_vrAJ0WbEsFA9W3I1W-g_BTsbt
 [jsplaylist]: https://www.youtube.com/playlist?list=PLkwxH9e_vrALRJKu7wfXby3MKeflhTu6B
