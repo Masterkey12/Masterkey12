@@ -1,12 +1,11 @@
-## I'm a Human, Person, Developer, and Reseacher!
+## I'm a Human, Person, Otaku, Developer, and Reseacher!
 
 - 🔭 I’m currently working 
 - 🌱 I’m currently learning everything 🤣
-- 👯 I’m looking to collaborate with other content creators
 -  Optimist & Product Person 
 -  Building things and learning how things work
-- 🥅 2023 Goals: Contribute more to Open Source projects,Travel, Do Money
-- ⚡ Fun fact: I love to play basketball,travel,football
+- 🥅 2024 Goals: Travel, Do Money
+- ⚡ Fun fact: I love to play basketball,travel,football and Videos Games
 
 ### Connect with me:
 
