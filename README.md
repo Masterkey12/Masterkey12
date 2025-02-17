@@ -4,7 +4,7 @@
 - 🌱 I’m currently learning everything 🤣
 -  Optimist & Product Person 
 -  Building things and learning how things work
-- 🥅 2024 Goals: Travel, Do Money
+- 🥅 2025 Goals: Travel, Do Money
 - ⚡ Fun fact: I love to play basketball,travel,football and Videos Games
 
 ### Connect with me:
